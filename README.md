@@ -26,6 +26,6 @@ Currently, I'm focusing on my studies and exploring new ideas in web development
 I'm free to chat about tech, coding, or anything else that piques your curiosity. You can reach me on:
 
 - 📧 Email: qaasimohinoyi@gmail.com
-- [qaasimohinoyi@gmail.com]
+- ✖️ Twitter: https://x.com/CodexABQ?t=D_e9vxFe5Z2rx8_w4ncJuA&s=09
 
 Let's connect and share our enthusiasm for technology and creativity! 😊🌟👨‍💻
