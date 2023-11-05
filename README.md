@@ -1,4 +1,4 @@
-# Hey, I'm [CodexABQ]! 👋
+# Hey, I'm CodexABQ!
 
 I'm a university student with a passion for web development, artificial intelligence, and photography. 😄
 
