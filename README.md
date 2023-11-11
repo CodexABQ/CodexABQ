@@ -15,7 +15,8 @@ I'm interested in:
 
 - 💻 Web Development
 - 🤖 Artificial Intelligence
-- 📷 Photography
+- 💡 Creativity
+- 📚 Content Writing 
 
 ## What I'm Up To
 
